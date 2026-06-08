@@ -1,1 +1,0 @@
-# tempahan-gambar
